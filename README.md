@@ -1,1 +1,1 @@
-# samsung-gt-i9305t
+# Samsung GT-i9305t
